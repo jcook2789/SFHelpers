@@ -1,2 +1,2 @@
 # SFHelpers
-"insert quote here"
+Instructions unclear --John Cook
